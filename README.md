@@ -1,1 +1,1 @@
-eloelo
+1. Getting data... than some financial analyse
